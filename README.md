@@ -1,0 +1,11 @@
+- 👋 Hi, I’m @AloneLeen
+- 👀 I’m interested in Learning QC and Qa < Also my hobbies are video and photo montage>
+- 🌱 I’m currently learning QA and i want it i need it, i'm trying my best i will get it no matter how.
+- The words I want to convey 
+- 1. Try your best
+- 2. Never give up 
+- 3. Go gym 
+- 4. Be friendly even in bad situation
+- 5. Do not be afraind of probmlems, it's okay to make mistakes
+- 6. Make love and give new people in your life great experience.
+- 7. LOVE YOURSELF
