@@ -6,6 +6,6 @@
 - 2. Never give up 
 - 3. Go gym 
 - 4. Be friendly even in bad situation
-- 5. Do not be afraind of probmlems, it's okay to make mistakes
+- 5. Do not be afraind of problems, it's okay to make mistakes
 - 6. Make love and give new people in your life great experience.
 - 7. LOVE YOURSELF
